@@ -1,4 +1,4 @@
-# Donaghe, Brandon (replace with yours)
+# Donaghe, Brandon
 List two truths and one lie about you below
 
 1. I play basketball
